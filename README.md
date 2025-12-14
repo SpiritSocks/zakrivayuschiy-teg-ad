@@ -1,1 +1,1 @@
-https://github.com/SpiritSocks/zakrivayuschiy-teg-ad#
+https://github.com/SpiritSocks/zakrivayuschiy-teg-ad
